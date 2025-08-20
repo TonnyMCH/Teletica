@@ -1,2 +1,0 @@
-# Teletica
-Ver tele
